@@ -1,3 +1,6 @@
+Title: Thank You For Subscribing
+Description: Thank you for subscribing to Bitfolio Academy Coaching Community. You’ll love it.
+
 Thank you for subscribing to Bitfolio Academy Coaching Community! You’ll love it.
 
 And be sure to add "Bitfolio Academy Coaching Community" <bitfoliobiz-en@y.kajabimail.net> to your safe senders (white) list to ensure you don’t miss a thing. And while we have you, let us know how we can help and support your journey. Email David at bitfoliobiz@gmail.com with your questions!
