@@ -1,3 +1,7 @@
+Title: What We Do: About David Anderson
+Description: Bitfolio Academy: What We Do. Meet David Anderson. Free Bitfolio Membership and Community. Free 7-day Yield-Farming Challenges. VIP Community with Weekly Small-Group Meetings. Elite Crypto Coaching. Crypto Essentials course.
+
+
 ABOUT DAVID ANDERSON
 
 My background is in systems and software engineering. I am a technology buff, and I enjoy getting in early on technology that will impact the future. I started bitfolio.biz in 2014 to document my crypto adventure. In 2013, I started mining crypto with ASIC mining rigs (or dedicated mining hardware). In 2016 and 2017, I was trading Bitcoin on Huobi, when trades were free. So, I have been mining, trading and investing in digital assets for nine years, and I am ready and willing to share my knowledge and expertise with you.
