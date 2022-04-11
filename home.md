@@ -1,3 +1,5 @@
+Title: Bitfolio Academy
+Description: Welcome to Bitfolio Academy Coaching Community! I help people grow their crypto assets without undue risks or long time horizons. Let's navigate the new digital financial ecosystem together. I offer group coaching, free yield-farming challenges, courses, private coaching and much more.
 
 Welcome to Bitfolio Academy!
  
